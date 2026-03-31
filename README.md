@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi, I'm Chethan Gowda
 Engineering Student
 
 
